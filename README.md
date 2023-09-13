@@ -4,8 +4,8 @@ I am Nur Afni Zuhrotul Laili. I'm an iOS Developer and also an Electrical Engine
 
 ### 📫 How to reach me
 
-* Linkedin : [https://www.linkedin.com/in/rickirby18](https://www.linkedin.com/in/nur-afni-zl/)
-* e-mail : [ricki.bin.yamin@gmail.com](mailto:afni.laili18@gmail.com)
+* Linkedin : [https://www.linkedin.com/in/afnizln](https://www.linkedin.com/in/nur-afni-zl/)
+* e-mail : [afni.laili18@gmail.com](mailto:afni.laili18@gmail.com)
 
 
 
